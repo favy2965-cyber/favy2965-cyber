@@ -1,7 +1,7 @@
-hey, i'm Favour 👋
+**hey, i'm Favour** 👋
 i write content and run socials for brands, and i'm open to AI annotation and response rating work.
 
-what i do
+**what i do**
 - social media management
 - content writing and copywriting
 - AI annotation and response rating
